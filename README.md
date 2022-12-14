@@ -1,0 +1,2 @@
+# Windows-aktiv
+GÓWNO
